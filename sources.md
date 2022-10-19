@@ -1,0 +1,2 @@
+side profile.webp: "Profile shot of young serious man, teenage college student looking left, showing one side of face and haircut, standing against white background", by Freepik, https://www.freepik.com/free-photo/profile-shot-young-serious-man-teenage-college-student-looking-left-showing-one-side-face-haircut-standing-against-white-background_23178498.htm#query=side%20profile&position=2&from_view=keyword
+plastic waste: "Plastic Waste" by Northwestern State University of Louisiana, https://www.nsula.edu/students-organizing-plastic-purge-recycling-project/
